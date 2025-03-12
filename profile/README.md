@@ -1,5 +1,6 @@
   
-![Slide 16_9 - 13 (1)](https://github.com/user-attachments/assets/6e99ffba-1140-46fa-9c66-5fe672ddbacf)
+![Group 8924 (2)](https://github.com/user-attachments/assets/936bdbb9-8f2d-44b3-8eae-0015a61f0373)
+
 
 <div align=center>
   
