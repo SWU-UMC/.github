@@ -1,5 +1,6 @@
-  
-![Group 8924 (2)](https://github.com/user-attachments/assets/936bdbb9-8f2d-44b3-8eae-0015a61f0373)
+
+
+<img width="1659" height="432" alt="Frame 1000012167" src="https://github.com/user-attachments/assets/8b661d70-ca2d-4f0d-854f-95cee87bff9f" />
 
 
 <div align=center>
